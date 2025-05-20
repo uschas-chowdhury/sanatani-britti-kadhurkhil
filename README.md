@@ -1,1 +1,1 @@
-# sanataria-britti-kadhurkhil
+# sanatani-britti-kadhurkhil
